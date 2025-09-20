@@ -1,1 +1,1 @@
-My core interests pertain to the science, law, and social policy of advancing technology. I hold a master’s in computational and applied mathematics and am an incoming 1L at the University of Chicago Law School. I am proficient in the mathematics and programming of both quantum and traditional computing, and in many of the technologies and ethics of artificial intelligence, machine learning, and cybersecurity.
+https://www.linkedin.com/in/jessie-henderson-107073216/
